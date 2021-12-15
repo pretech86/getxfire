@@ -377,3 +377,5 @@ GetX has a huge ecosystem, a large community, a large number of collaborators, a
 - Instagram: https://instagram.com/faisalramdan17 & https://instagram.com/codingyourlife.id
 - LinkedIn: https://www.linkedin.com/in/faisalramdan17
 
+#   g e t x - u p d a t e d  
+ 
